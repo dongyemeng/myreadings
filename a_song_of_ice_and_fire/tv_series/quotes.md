@@ -1,5 +1,6 @@
 #S02E03
 
+> Power is a curious thing, my Lord. 
 > Are you fond of riddles?
 >
 > Why, am I about to hear one?
