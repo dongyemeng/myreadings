@@ -19,6 +19,8 @@
 >
 > Power resides where men believe it resides. It's a trick, a shadow on the wall. And a very small man can cast a very large shadow.
 
-#S04E06
+#S0403
+> Money buys a man’s silence for a time. A bolt in the heart buys it forever.
 
+#S04E06
 > I'm guilty of a far more monstrous crime. I'm guilty of being a dwarf.
