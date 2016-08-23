@@ -23,7 +23,7 @@
 > Money buys a man’s silence for a time. A bolt in the heart buys it forever.
 
 #S04E06
-> I'm guilty of a far more monstrous crime. I'm guilty of being a dwarf.
+> I'm guilty of a far more monstrous crime. I'm guilty of being a dwarf. I’ve been on trial for that my entire life.
 
 # S05E07
 > Egg, I dreamt that I was old.
