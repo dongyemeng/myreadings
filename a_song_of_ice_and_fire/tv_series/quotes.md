@@ -19,6 +19,11 @@
 >
 > Power resides where men believe it resides. It's a trick, a shadow on the wall. And a very small man can cast a very large shadow.
 
+#S0401
+> You always know when a man is telling a lie. How did you acquire this magical power?
+
+> I grew up in King’s Landing.
+
 #S04E03
 > Money buys a man’s silence for a time. A bolt in the heart buys it forever.
 
